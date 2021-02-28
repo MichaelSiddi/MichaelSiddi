@@ -1,6 +1,4 @@
-### Hi there 👋
-
-Hello!
+### Hello! 👋
 
 I'm Mike da ba dee da ba daa.
 
